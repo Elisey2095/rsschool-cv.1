@@ -1,2 +1,0 @@
-# Yelisey Burin
-## Contacts
